@@ -84,7 +84,7 @@
 
 ## 📫 Contact
 
-- 📷 Instagram: [@vulnxs](https://instagram.com/아이디)
+- 📷 Instagram: [@vulnxs](https://instagram.com/vulnxs)
 - 🧠 Notion (준비 중)
 
 ---
